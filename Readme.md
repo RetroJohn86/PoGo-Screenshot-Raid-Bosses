@@ -1,6 +1,6 @@
 # __**Pokemon GO Screenshots**__ __**:**__ __**Raid Bosses**__
 
-T**+** __**Repository Info**__
+**+** __**Repository Info**__
 
 As from the March 2024, the Download Size for this Repo is : **N/A MB** ( Please Note The Size Can Change At Anytime Due Too Updates. )
 **This Repository is of all screenshot i have captured and found and is organized based on category and is a combination of saved and downloaded for devices.** If you would like to add images too this Repository, Message me via discord or other platform. PLEASE NOTE: YOUR UPLOAD WILL BE VIA GOOGLE DRIVE, SO YOU WILL NEED A GMAIL EMAIL AND I NEED IT.
